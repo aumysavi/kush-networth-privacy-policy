@@ -1,1 +1,1 @@
-# kush-networth-privacy-policy
+# kush-network-privacy-policy
